@@ -50,7 +50,7 @@ All Praise and Glory to our Good Lord Jesus Christ.
 
 ## Address
 
-REDEEMER CHRIST ASSEMBLY, 
+REDEEMER CHRIST ASSEMBLY, <br/>
 15 KENVIEW BOULEVARD, BRAMPTON, ON,L6T5G7
 Service: Sundays @ 9:30 am
 
@@ -58,5 +58,5 @@ Service: Sundays @ 9:30 am
 
 Call us: +1-(647)-271-7645
 
-Email us: SeniorPastor@redeemerchristassembly.com
+Email us: SeniorPastor@redeemerchristassembly.com <br/>
 Website: [www.redeemerchristassembly.com](https://www.redeemerchristassembly.com)
