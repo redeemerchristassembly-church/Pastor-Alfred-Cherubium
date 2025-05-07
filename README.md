@@ -59,3 +59,4 @@ Service: Sundays @ 9:30 am
 Call us: +1-(647)-271-7645
 
 Email us: SeniorPastor@redeemerchristassembly.com
+Website: [www.redeemerchristassembly.com](https://www.redeemerchristassembly.com)
