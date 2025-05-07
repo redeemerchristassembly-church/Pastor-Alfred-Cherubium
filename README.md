@@ -10,22 +10,22 @@ Books Published:
 
 English Books
 
-# Sharing Your Faith & Testimony
-# Marriage is Honourable
-# The Mighty Power Ever Known – LOVE
-# Glorious Names and Titles of God Almighty
-# Miracles of Jesus Christ & His Apostles in the Bible
+1. Sharing Your Faith & Testimony
+2. Marriage is Honourable
+3. The Mighty Power Ever Known – LOVE
+4. lorious Names and Titles of God Almighty
+5. Miracles of Jesus Christ & His Apostles in the Bible
  
 
 Tamil Books
 
-# Fear Not
-# Sin Not
-# Be Holy
-# Word of God – Living Word
-# Worship not the creations – Worship your Creator
-# God the Holy Spirit
-# Power of Prayer
-# Baptism
-# Christian Unity
-# Importance of Revival
+1. Fear Not
+2. Sin Not
+3. Be Holy
+4. Word of God – Living Word
+5. Worship not the creations – Worship your Creator
+6. God the Holy Spirit
+7. Power of Prayer
+8. Baptism
+9. Christian Unity
+10. Importance of Revival
