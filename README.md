@@ -11,10 +11,10 @@ Pastor Cherubim and his family moved to Canada in 2001 and he established Redeem
 ## English Books
 
 1. Sharing Your Faith & Testimony - [Click to Read](English-Books/SHARING%20YOUR%20FAITH%20AND%20TESTIMONY%20-%20FINAL%202025.pdf)
-2. Marriage is Honourable
-3. The Mighty Power Ever Known – LOVE
-4. lorious Names and Titles of God Almighty
-5. Miracles of Jesus Christ & His Apostles in the Bible
+2. Marriage is Honourable - [Click to Read](English-Books/MARRIAGE%20IS%20HONOURABLE%20-%20FINAL%202025.pdf)
+3. The Greatest Power Ever Known – LOVE - [Click to Read](English-Books/THE%20Greatest%20Power%20Ever%20Known%20-%20LOVE%20-%20FINAL%202025.pdf)
+4. Glorious Names and Titles of God Almighty - [Click to Read](English-Books/GLORIOUS%20NAME%20of%20God%20Almighty%20-%20NEW%20PROJECT%202025.pdf)
+5. Miracles of Jesus Christ & His Apostles in the Bible - [Click to Read](English-Books/MIRACLES%20OF%20JESUS%20%26%20APOSTLES%20IN%20THE%20BIBLE%20-%20NEW%20PROJECT%202025.pdf)
  
 
 ## Tamil Books
