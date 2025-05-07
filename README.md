@@ -10,7 +10,7 @@ Pastor Cherubim and his family moved to Canada in 2001 and he established Redeem
 
 ## English Books
 
-1. Sharing Your Faith & Testimony - [Click to Read](https://github.com/redeemerchristassembly-web/Pastor-Alfred-Cherubium/blob/main/English-Books/SHARING%20YOUR%20FAITH%20AND%20TESTIMONY%20-%20FINAL%202025.pdf)
+1. Sharing Your Faith & Testimony - [Click to Read](English-Books/SHARING%20YOUR%20FAITH%20AND%20TESTIMONY%20-%20FINAL%202025.pdf)
 2. Marriage is Honourable
 3. The Mighty Power Ever Known – LOVE
 4. lorious Names and Titles of God Almighty
